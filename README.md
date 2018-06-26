@@ -1,1 +1,1 @@
-# killer-chimps
+# Killer-Chimpanzees-Games
